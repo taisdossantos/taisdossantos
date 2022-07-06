@@ -1,0 +1,5 @@
+- 👋 Olá, meu nome é Tais, e sou estudante de uma escola publica.
+- 👀 Gosto de 
+- 🌱 
+- 💞
+- 📫 
